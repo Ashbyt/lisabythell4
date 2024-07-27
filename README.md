@@ -1,3 +1,4 @@
-# lisa bythell repository
+# Lisa Bythell repository
 
+Lisa Bythell, Lisa Bythell
 
